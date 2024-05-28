@@ -1,2 +1,0 @@
-# akhundubedullah.github.io
-# Portfolio
